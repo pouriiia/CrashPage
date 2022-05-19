@@ -1,2 +1,2 @@
 # CrashPage
-This Page Is For Joking And Crushing Friends
+This Page Is For Joking And Crushing Friends :)
